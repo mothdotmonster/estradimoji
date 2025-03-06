@@ -1,2 +1,2 @@
 # estradimoji
-estrogen-themed emotes
+estradiol inspired emoticons
